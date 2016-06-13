@@ -36,7 +36,7 @@
 
 多年互联网行业开发经验，曾就职于深圳腾讯，2013年加入微博商业产品部，负责商业服务团队相关产品的研发管理工作。
 
-![chunyu](http://ww1.sinaimg.cn/bmiddle/82a77095jw1f41oumi0fuj208l0b0dgn.jpg)
+![chunyu](http://ww1.sinaimg.cn/bmiddle/82a77095jw1f48w7wr7u5j213x13xqa7.jpg)
 
 ### 内容概要
 
